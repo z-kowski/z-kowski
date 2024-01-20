@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games, heavy metal, cars, and on and on ...
 - 🌱 I’m currently learning video game design at SAE Institute, seeking to specialise in gameplay design, production, and writing.
 - 💞️ I’m looking to collaborate on imaginitive, ambitious games with unique gameplay and writing.
-- 📫 How to reach me: kzkowski@gmail.com
+- 📫 How to reach me: not here lmaooooo
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am _very_ fun
 
