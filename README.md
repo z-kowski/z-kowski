@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @z-kowski!
-- 👀 I’m interested in video games, heavy metal, cars, and on and on ...
-- 🌱 I’m currently learning video game design at SAE Institute, seeking to specialise in gameplay design, production, and writing.
+- 👀 I’m interested in video games, death metal, cars, coffee, food, and on and on ...
+- 🌱 I’m currently learning video game design at SAE Institute Perth, seeking to specialise in game design, production, and writing.
 - 💞️ I’m looking to collaborate on imaginitive, ambitious games with unique gameplay and writing.
 - 📫 How to reach me: not here lmaooooo
 - 😄 Pronouns: he/him
